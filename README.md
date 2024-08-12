@@ -3,7 +3,7 @@
 - 💞️ I’m looking to collaborate on any projects...
 - 📫 How to reach me ...
 - email- rahulkumar69953175@gmail.com
-- insta- rahul__patel__75
+- insta- [rahul__patel__75](https://www.instagram.com/rahul__patel__75/)
 - twitter - rkp194
 - 😄 Pronouns: Function Guru
 - ⚡ Fun fact: Debugging is my therapy.
